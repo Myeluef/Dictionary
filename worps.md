@@ -1,0 +1,1 @@
+iltam sumgaga şupti ilatim
